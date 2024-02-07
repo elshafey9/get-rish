@@ -1,2 +1,2 @@
 # get-rish
-you need monwy now !
+you need money now !
